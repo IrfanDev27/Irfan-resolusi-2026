@@ -1,2 +1,2 @@
-# Irfan-resolusi-2026
+# Irfan-Khayalah
 Rencana serta goals saya di tahun 2026!
